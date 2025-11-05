@@ -15,4 +15,4 @@
 
 ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰more speech YAHOOoooo![1cc99794](https://github.com/user-attachments/assets/03f68818-3f7f-450d-b9a3-eb7ebb2b8105)
 
-![hug-me](https://github.com/user-attachments/assets/2a9f14e7-ba27-4834-b17b-dd3f9db10df3)  thing u can use idk if u wantt,,
+[ata](putthelinkheree) ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/2b555e31-7584-4059-9d28-99deed29b14d) [more stuff](linkhere) ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/2b555e31-7584-4059-9d28-99deed29b14d) [lala](addd,,,heree)
