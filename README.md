@@ -2,6 +2,9 @@
 
 ꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&base=220&label=Fossils!&color=ff698f&style=plastic)꒱
 
+
+![picmix com_13172982](https://github.com/user-attachments/assets/08f1a55e-ff52-48e6-9867-edaf6d573b62)
+
 <img width="500" height="22" alt="c6faf46e_original" src="https://github.com/user-attachments/assets/ebaf13a8-6393-4c6b-99e3-7eb868bac146" />
 
 ![6d4a3d99d930dbe5c92590dd8b272fa19715d9d1](https://github.com/user-attachments/assets/82d42b7d-b324-459d-9547-800ba951fc1c)꒰ put like info about urself, introduce n all![f15tlg](https://github.com/user-attachments/assets/ae17d1c8-c98a-4f1d-8cdb-226ea66c3845)
